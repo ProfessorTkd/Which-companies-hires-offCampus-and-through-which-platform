@@ -109,6 +109,6 @@
 
 **For any doubt, feel free to connect on Linkedin and Instagram**
 
-> [Linkedin](https://www.linkedin.com/in/iamtapishrawatdotcom/) \
+> [Linkedin](https://www.linkedin.com/in/iamtapishrawatdotcom/) 
 
 
